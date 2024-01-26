@@ -1,1 +1,1 @@
-# Responsive-Dumbledore-Meme
+# Responsive-Gandalf-Meme
